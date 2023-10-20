@@ -11,8 +11,6 @@ If you encounter any problems when using our products, please email us and we wi
 Thank you again!
 Technical support AppInfo
 
-This is the diary of tourists, recording the scenery and memories along the way Here, you can find beautiful scenery. Here, you can publish and share information about the countries, cities and scenic spots you have been to. Here, you can make like-minded friends. Record a good memory!
-
 Contact Us
 
 App E-mail address: tikunga01@gmail.com
